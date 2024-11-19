@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **react / Android / Nodejs**
 
-- 📫 How to reach me **lahirutheekshanabandara2002@gmail.com**
+- 📫 How to reach me **lahirutheekshanabandara200**
 
 - ⚡ Fun fact **call me as AS**
 
